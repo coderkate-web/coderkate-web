@@ -1,8 +1,8 @@
 ## Hi there 👋
 
-- 🔭 I’m currently working on cyberse
-- 🌱 I’m currently learning python
-- 👯 I’m looking to collaborate on good people
-- 🤔 I’m looking for help with Ai
-- 💬 Ask me about Why wanna do this
-- 📫 How to reach me: ashalonarorash04@gmail.com
+I'm 13 years old born from bermuda
+ Working on ethical hacker new to it.
+ Using https://code.visualstudio.com/ to do the coding tell me more about others coding platform
+ Reach me out my email is ashalonarorash04@gmail.com
+
+My goals is wanting to be wealthy because have dreams cars and more. 😊
